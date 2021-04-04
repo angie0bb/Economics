@@ -1,1 +1,1 @@
-# Economcis
+# Economics
